@@ -9,8 +9,6 @@
 
 - 📫 How to reach me **coimbra.diogo.04@gmail.com**
 
-- 📄 Know about my experiences [https://www.linkedin.com/in/diogo-coimbra-8743042bb/](https://www.linkedin.com/in/diogo-coimbra-8743042bb/)
-
 - ⚡ Fun fact **I've played almost every sport in the world**
 
 <h3 align="left">Connect with me:</h3>
